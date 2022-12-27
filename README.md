@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **axldarealest@gmx.com**
 
-- 📄 Know about my experiences [linkedin.com/in/axldarealest/](https://www.linkedin.com/in/axldarealest/)
+- 📄 Know about my experiences [linkedin.com/in/axldarealest](https://www.linkedin.com/in/axldarealest/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
